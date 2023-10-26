@@ -1,1 +1,0 @@
-# Subavishwa.R-photopolio
